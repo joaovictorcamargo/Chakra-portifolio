@@ -1,5 +1,7 @@
 # Takuya's Homepage
 
+Takuya's. All Rights Reserved.
+
 [https://www.craftz.dog/](https://www.craftz.dog/)
 
 ## Tutorial
